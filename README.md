@@ -1,3 +1,3 @@
 # RRBAQA
 
-this is a readm
+this is a readme
