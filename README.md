@@ -1,1 +1,3 @@
 Original article: https://www.nytimes.com/2021/03/11/arts/television/wandavision-disney-plus-gender.html?
+
+Hi Santi! I hope that you either don't like Marvel or that at least you've already seen the show cause this article has lots of spoilers...
